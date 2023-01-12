@@ -8,7 +8,7 @@
 
 💜https://discord.gg/aimassist (discord to ask questions, purchase and hang out!)💜
 
-💜https://ultracheats.net💜
+💜 https://ultracheats.net 💜
 
 ![image](https://user-images.githubusercontent.com/105129035/205740426-94d37977-e5b9-4cdb-a5d1-18ab1397935f.png)
 ![imagesfaf](https://user-images.githubusercontent.com/105129035/210282124-5a4a8186-e346-446d-acf5-625d5030e0ef.png)
