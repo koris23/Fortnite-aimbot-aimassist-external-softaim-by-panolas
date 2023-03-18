@@ -1,6 +1,6 @@
 𝗦𝗧𝗥𝗜𝗖𝗧𝗟𝗬 𝗙𝗢𝗥 𝗘𝗗𝗨𝗖𝗔𝗧𝗜𝗢𝗡𝗔𝗟 𝗣𝗨𝗥𝗣𝗢𝗦𝗘𝗦 𝗢𝗡𝗟𝗬!!!
 
-![cropped](https://user-images.githubusercontent.com/105129035/213881873-2ebc431f-7452-4344-8e4f-b7af0a7bf38d.gif)
+![cropped](https://cdn.discordapp.com/attachments/1076352932422885426/1085171821902573630/Comp-2.gif)
 
 • Self-coded bot that gives you insane aimassist in Fortnite!!!   Works in Creative, Pubs, Tournaments and Arena
 
